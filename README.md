@@ -5,10 +5,10 @@ chiranjivichowdary123@gmail.com
 information technology
 
 
-#RVR&JCCE_IT
-##WELCOME
-###HIII
-#####RVR&JCCE_IT
-######RVR&JCCE_IT
-#######RVR&JCCE_IT
-########RVR&JCCE_IT
+# chiranjivi 
+# vasireddy
+# y19it017
+# chiranjivichowdary123@gmail.com
+# information technology
+# endugumpalem
+# rvr&jcce
